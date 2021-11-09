@@ -1,3 +1,0 @@
-"# GoldenShoe" 
-"# GoldenShoe" 
-"# GoldenShoe" 
